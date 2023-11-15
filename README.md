@@ -8,6 +8,5 @@ I am willing to relocate and am presently open to permanent onsite or hybrid wor
 
 In addition to my work and passion as a data analyst, baking and cooking are also passions of mine, allowing me to create and savor new culinary experiences.
 
-Download CV https://github.com/barchibong/barchibong/blob/main/BlessingArchibong.docx
 
-Contact:blessingarchibong9@gmail.com
+Contact:blessingarchibongone@gmail.com
